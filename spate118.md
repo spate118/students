@@ -1,0 +1,1 @@
+My name is Saahil Patel. I am currently a senior majoring in Computer Science with a minor in Cybersecurity. I have always been interested in programming as well as software development and always have been eager to learn more and more. I want to learn what digital archeology is. My hobbies are being outdoors and sports.  
